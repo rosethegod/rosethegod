@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rosethegod
-- 👀 I’m interested in money
+- 👀 I’m interested in shiny objects
 - 🌱 I’m currently learning god stuff and things
 - 💞️ I’m looking to collaborate on audiopharmacuticals.com
 - 📫 How to reach me...
